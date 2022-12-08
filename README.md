@@ -1,2 +1,1 @@
--Merhaba ben muratgündüz.
--Araştırmayı seven meraklı biriyim.
+
